@@ -1,0 +1,1 @@
+# swp_gold_bullion_v2
